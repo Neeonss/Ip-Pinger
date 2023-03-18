@@ -11,5 +11,5 @@ How to Use it
 
 2. You DONT PASTE THE IP IN YOU WRITE IT ! Because if you paste it dont work !
 
-3.Press Emter and BOOM HE CANT DO ANYTHING HE IS GETTING SPAMMED !
+3.Press Enter and BOOM HE CANT DO ANYTHING HE IS GETTING SPAMMED !
 
