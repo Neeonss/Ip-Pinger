@@ -15,3 +15,7 @@ How to Use it
 
 4.Press Enter and BOOM HE CANT DO ANYTHING HE IS GETTING SPAMMED !
 
+IMAGE : 
+![image](https://user-images.githubusercontent.com/128236523/226113215-7452e378-ba45-425a-9a2a-544836538782.png)
+
+
